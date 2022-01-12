@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aniejo
-- 👀 I’m interested in learning all things new
+- 👀 Binary Crayon. I’m interested in learning all things new
 - 📫 reach me @ here
 
 <!---
